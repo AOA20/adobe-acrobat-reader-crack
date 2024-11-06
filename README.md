@@ -1,0 +1,1 @@
+# adobe-acrobat-reader-crack
